@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with new Polymarket Algorithm | slippage-control + real-time-market-analysis, the #1 algorithm. Includes slippage-control and
 
 
 
